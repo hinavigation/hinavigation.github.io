@@ -7,7 +7,7 @@
 
 <br>
 
-# [**查看效果**](https://hiresearch.github.io/)
+# [**查看效果**]https://hinavigation.github.io/)
 
 <br>
 
